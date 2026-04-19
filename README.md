@@ -3,9 +3,13 @@ I am srsly don't know how to make this but anywayssss
 If you like a shortcut rather than visiting my link, I'll make it short for you here
 
 Name    : Vyge
+
 Pronouns: Any/All, He/Him, She/Her, They/Them
+
 ♥️ Genderfluid & Aroace ♦️
+
 Zodiac     : Cancer
+
 Personality: INTP 5w4 {Cognitive function}
 
 *⁠.⁠✧♣️Multifandom and multishipper♠️⁠｡⁠☆ 
