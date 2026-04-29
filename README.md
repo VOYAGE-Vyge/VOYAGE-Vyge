@@ -16,6 +16,8 @@ Personality: INTP 5w4 {Cognitive function}
 
 ｡⁠:ﾟReminder)ﾟ⁠:⁠｡
 
+C+H always allowed if have them in my name/// I don't mind int as long it's IWC /// Yes I also allows you whispered with me, if that's what makes comfortable /// Pls tell me if I ever hurt your feelings, I'll genuinely respect your decision
+
 I'll avoid the problematic fandom one, yes i know which, dw, i have so much experience. But if it isn't, then i would like to deep dive your likings by myself <3
 
 P/s: just because i follow that person doesn't mean i also interested with their likings. I have MY OWN liking and interest, which i already mentioned it in my strawpage :O
