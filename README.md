@@ -26,4 +26,5 @@ I'll avoid the problematic fandom one, yes i know which, dw, i have so much expe
 
 P/s: just because i follow that person doesn't mean i also interested with their likings. I have MY OWN liking and interest, which i already mentioned it in my strawpage :O
 
-Fin~
+
+╚══════════ஜ♤♚♧ஜ══════════╝
