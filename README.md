@@ -19,7 +19,7 @@ https://visitorsartgallery.straw.page
 
 ｡⁠:ﾟReminder)ﾟ⁠:⁠｡
 
-C+H always allowed if I have them in my name/// I don't mind int as long it's IWC /// Yes I also allows you whispered with me, if that's what makes u comfortable /// Pls tell me if I ever hurt your feelings, I'll genuinely respect your decision
+ᑕ+ᕼ ᴀʟᴡᴀʏՏ ᴀʟʟᴏᴡᴇᴅ ɪғ I ʜᴀᴠᴇ ᴛʜᴇᴍ ɪɴ ᴍʏ ɴᴀᴍᴇ ❦ I ᴅᴏɴ'ᴛ ᴍɪɴᴅ ɪɴᴛ ᴀՏ ʟᴏɴɢ ɪᴛ'Տ Iᗯᑕ ✆ YᴇՏ I ᴀʟՏᴏ ᴀʟʟᴏᴡՏ ʏᴏᴜ ᴡʜɪՏᴘᴇʀᴇᴅ ᴡɪᴛʜ ᴍᴇ, ɪғ ᴛʜᴀᴛ'Տ ᴡʜᴀᴛ ᴍᴀᴋᴇՏ ᴜ ᴄᴏᴍғᴏʀᴛᴀʙʟᴇ ☏ ᑭʟՏ ᴛᴇʟʟ ᴍᴇ ɪғ I ᴇᴠᴇʀ ʜᴜʀᴛ ʏᴏᴜʀ ғᴇᴇʟɪɴɢՏ, I'ʟʟ ɢᴇɴᴜɪɴᴇʟʏ ʀᴇՏᴘᴇᴄᴛ ʏᴏᴜʀ ᴅᴇᴄɪՏɪᴏɴ
 
 I'll avoid the problematic fandom one, yes i know which, dw, i have so much experience. But if it isn't, then i would like to deep dive your likings by myself <3
 
