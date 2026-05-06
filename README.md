@@ -2,11 +2,13 @@ I am srsly don't know how to make this but anywayssss
 
 If you like a shortcut rather than visiting my link, I'll make it short for you here
 
-Name    : Vyge
+══════◄••❀••►════════════◄••❀••►══════
 
-Pronouns: Any/All, He/Him, She/Her, They/Them
+𝑵𝒂𝒎𝒆 : 𝑽𝒚𝒈𝒆
 
-♥️ Genderfluid & Aroace ♦️
+𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔: 𝑨𝒏𝒚/𝑨𝒍𝒍, 𝑯𝒆/𝑯𝒊𝒎, 𝑺𝒉𝒆/𝑯𝒆𝒓, 𝑻𝒉𝒆𝒚/𝑻𝒉𝒆𝒎
+
+♡ 𝑮𝒆𝒏𝒅𝒆𝒓𝒇𝒍𝒖𝒊𝒅 & 𝑨𝒓𝒐𝒂𝒄𝒆 ♢
 
 Zodiac     : Cancer
 
