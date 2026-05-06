@@ -24,7 +24,7 @@ https://visitorsartgallery.straw.page
 
 I'ʟʟ ᴀᴠᴏɪᴅ ᴛʜᴇ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ғᴀɴᴅᴏᴍ ᴏɴᴇ, ʏᴇs ɪ ᴋɴᴏᴡ ᴡʜɪᴄʜ, ᴅᴡ. I ʜᴀᴠᴇ sᴏ ᴍᴜᴄʜ ᴇxᴘᴇʀɪᴇɴᴄᴇ. Bᴜᴛ ɪғ ɪᴛ ɪsɴ'ᴛ, ᴛʜᴇɴ ɪ ᴡᴏᴜʟᴅ ʟɪᴋᴇ ᴛᴏ ᴅᴇᴇᴘ ᴅɪᴠᴇ ʏᴏᴜʀ ʟɪᴋɪɴɢs ʙʏ ᴍʏsᴇʟғ <3
 
-P/s: Just because i follow that person doesn't mean i also interested with their likings. I have MY OWN liking and interest, which i already mentioned it in my strawpage!! 
+ᵖ/ˢ: ʲᵘˢᵗ ᵇᵉᶜᵃᵘˢᵉ ⁱ ᶠᵒˡˡᵒʷ ᵗʰᵃᵗ ᵖᵉʳˢᵒⁿ ᵈᵒᵉˢⁿ'ᵗ ᵐᵉᵃⁿ ⁱ ᵃˡˢᵒ ⁱⁿᵗᵉʳᵉˢᵗᵉᵈ ʷⁱᵗʰ ᵗʰᵉⁱʳ ˡⁱᵏⁱⁿᵍˢ. ⁱ ʰᵃᵛᵉ ᵐʸ ᵒʷⁿ ˡⁱᵏⁱⁿᵍ ᵃⁿᵈ ⁱⁿᵗᵉʳᵉˢᵗ, ʷʰⁱᶜʰ ⁱ ᵃˡʳᵉᵃᵈʸ ᵐᵉⁿᵗⁱᵒⁿᵉᵈ ⁱᵗ ⁱⁿ ᵐʸ ˢᵗʳᵃʷᵖᵃᵍᵉ!! 
 
 
 ╚══════════ஜ♤♚♧ஜ══════════╝
