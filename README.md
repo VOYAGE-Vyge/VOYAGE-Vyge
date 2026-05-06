@@ -14,7 +14,7 @@ If you like a shortcut rather than visiting my link, I'll make it short for you 
 
 𝑷𝒆𝒓𝒔𝒐𝒏𝒂𝒍𝒊𝒕𝒚: 𝑰𝑵𝑻𝑷 𝟓𝒘𝟒 {𝑪𝒐𝒈𝒏𝒊𝒕𝒊𝒗𝒆 𝒇𝒖𝒏𝒄𝒕𝒊𝒐𝒏}
 
-*⁠.⁠✧♣️Multifandom and multishipper♠️⁠｡⁠☆ 
+*⁠.⁠✧➶ Multifandom and multishipper ｡⁠☆➴ 
 
 ｡⁠:ﾟReminder)ﾟ⁠:⁠｡
 
