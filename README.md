@@ -22,9 +22,9 @@ https://visitorsartgallery.straw.page
 
 ᑕ+ᕼ ᴀʟᴡᴀʏՏ ᴀʟʟᴏᴡᴇᴅ ɪғ I ʜᴀᴠᴇ ᴛʜᴇᴍ ɪɴ ᴍʏ ɴᴀᴍᴇ ❦ I ᴅᴏɴ'ᴛ ᴍɪɴᴅ ɪɴᴛ ᴀՏ ʟᴏɴɢ ɪᴛ'Տ Iᗯᑕ ✆ YᴇՏ I ᴀʟՏᴏ ᴀʟʟᴏᴡՏ ʏᴏᴜ ᴡʜɪՏᴘᴇʀᴇᴅ ᴡɪᴛʜ ᴍᴇ, ɪғ ᴛʜᴀᴛ'Տ ᴡʜᴀᴛ ᴍᴀᴋᴇՏ ᴜ ᴄᴏᴍғᴏʀᴛᴀʙʟᴇ ☏ ᑭʟՏ ᴛᴇʟʟ ᴍᴇ ɪғ I ᴇᴠᴇʀ ʜᴜʀᴛ ʏᴏᴜʀ ғᴇᴇʟɪɴɢՏ, I'ʟʟ ɢᴇɴᴜɪɴᴇʟʏ ʀᴇՏᴘᴇᴄᴛ ʏᴏᴜʀ ᴅᴇᴄɪՏɪᴏɴ
 
-I'll avoid the problematic fandom one, yes i know which, dw, i have so much experience. But if it isn't, then i would like to deep dive your likings by myself <3
+I'ʟʟ ᴀᴠᴏɪᴅ ᴛʜᴇ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ғᴀɴᴅᴏᴍ ᴏɴᴇ, ʏᴇs ɪ ᴋɴᴏᴡ ᴡʜɪᴄʜ, ᴅᴡ. I ʜᴀᴠᴇ sᴏ ᴍᴜᴄʜ ᴇxᴘᴇʀɪᴇɴᴄᴇ. Bᴜᴛ ɪғ ɪᴛ ɪsɴ'ᴛ, ᴛʜᴇɴ ɪ ᴡᴏᴜʟᴅ ʟɪᴋᴇ ᴛᴏ ᴅᴇᴇᴘ ᴅɪᴠᴇ ʏᴏᴜʀ ʟɪᴋɪɴɢs ʙʏ ᴍʏsᴇʟғ <3
 
-P/s: just because i follow that person doesn't mean i also interested with their likings. I have MY OWN liking and interest, which i already mentioned it in my strawpage :O
+P/s: Just because i follow that person doesn't mean i also interested with their likings. I have MY OWN liking and interest, which i already mentioned it in my strawpage!! 
 
 
 ╚══════════ஜ♤♚♧ஜ══════════╝
