@@ -2,7 +2,7 @@ I am srsly don't know how to make this but anywayssss
 
 If you like a shortcut rather than visiting my link, I'll make it short for you here
 
-══════════════◄••❀••►══════════════
+════════════◄••❀••►════════════
 
 𝑵𝒂𝒎𝒆 : 𝑽𝒚𝒈𝒆
 
