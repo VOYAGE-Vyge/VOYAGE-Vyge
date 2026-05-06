@@ -1,8 +1,7 @@
-I am srsly don't know how to make this but anywayssss
+My Response:
+https://visitorsartgallery.straw.page
 
-If you like a shortcut rather than visiting my link, I'll make it short for you here
-
-https://voyageeeee.straw.page
+<3
 
 ══════════◄••❀••►══════════
 
