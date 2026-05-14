@@ -1,10 +1,3 @@
-My Response:
-https://visitorsartgallery.straw.page
-
-My art or whatever ig:
-https://docs.google.com/document/d/1bQLfj8aHVsbIVz2zFhnB4wKnefHMJbHoTiJDQtaLB6Q/edit?usp=drivesdk
-
-<3
 
 ══════════◄••❀••►══════════
 
@@ -31,3 +24,12 @@ https://docs.google.com/document/d/1bQLfj8aHVsbIVz2zFhnB4wKnefHMJbHoTiJDQtaLB6Q/
 
 
 ╚══════════ஜ♤♚♧ஜ══════════╝
+
+My Response:
+https://visitorsartgallery.straw.page
+
+My art or whatever ig:
+https://docs.google.com/document/d/1bQLfj8aHVsbIVz2zFhnB4wKnefHMJbHoTiJDQtaLB6Q/edit?usp=drivesdk
+
+<3
+
